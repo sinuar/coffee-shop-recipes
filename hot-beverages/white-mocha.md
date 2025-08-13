@@ -6,7 +6,7 @@
 
 - 4 Tbsp white chocolate chips or chopped white chocolate
 - 1 shot Espresso Roast
-- 1 cup of almond milk
+- 1 cup chocolate milk
 - Whipped cream
 
 ## How to make White Chocolate Mocha​
@@ -25,7 +25,7 @@
 
 ### Step 4
 
-- Froth almond milk using your preferred method.
+- Froth chocolate milk using your preferred method.
 
 ### Step 5
 
